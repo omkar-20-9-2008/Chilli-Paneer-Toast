@@ -1,4 +1,4 @@
-This is dish is CHILLI PANEER TOAST.
+This dish is CHILLI PANEER TOAST.
 An easy and simple snack toast recipe made with capsicum, chilli and paneer toppings on a crisp sandwich bread using tawa or frying pan.
 It is an ideal evening snack recipe and can be prepared within minutes with all the basic ingredients available in your kitchen.
 It can also be served for morning breakfast with a side of tangy or spice tomato sauce.
